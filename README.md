@@ -2,4 +2,6 @@
 
 (how do people choose their pfp lol)
 
+(no seriously. how)
+
 ![](https://steam-current-game.vercel.app/api/?steamids=76561199131741425)
