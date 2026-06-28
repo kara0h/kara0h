@@ -7,14 +7,27 @@
 ![](https://steam-current-game.vercel.app/api/?steamids=76561199131741425)
 
 i'm awkward but i won't bite so yeah c+h is A-OK
+
+semi-afk
+
 meowmeowmeowmeowmeow
 
 i love my kitty plue y 
+
 plue 
+
 :-３
+
  and i like OFF (the game)
+ 
  and
+ 
  uh
+ 
  ok
+ 
  i 
+ 
  don't know
+
+ 
