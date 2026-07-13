@@ -30,4 +30,4 @@ plue
  
  don't know
 
- the way the man room uses the part of scarlet forest right after the don't forget motif in chapter 5 deltarune
+ the way the man room uses the part of (piano ver.) scarlet forest right after the don't forget motif in chapter 5 deltarune
